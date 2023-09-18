@@ -1,6 +1,6 @@
 # My Favorite Game
 ### (Disambiguation)
---
+---
 
 ### 1. Who, What, When, and Where?
 
